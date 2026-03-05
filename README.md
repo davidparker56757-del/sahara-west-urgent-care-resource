@@ -55,7 +55,7 @@ Healthcare providers aim to maintain confidentiality and create a comfortable en
 For those located in Nevada, [Sahara West Urgent Care & Wellness](https://saharawesturgentcare.com/) provides walk-in services for a range of non-emergency medical needs, including STI screening and general urgent care concerns. Having access to local medical professionals helps ensure timely evaluation and appropriate treatment.
 
 You can also learn more about community-based urgent care resources through our related health information page here:
-[Link is:](https://sites.google.com/view/sahara-west-urgent-care-health/home)]
+[health resource page](https://sites.google.com/view/sahara-west-urgent-care-health/home)]
 
 **Choosing the Right Care Setting**
 
